@@ -1,0 +1,1 @@
+# jiifit-assets
